@@ -12,7 +12,7 @@ I am a college student majoring in GIT (Full Stack Web Development) at ASU.
 
 - 🌱 I’m currently learning HTML, CSS, and JavaScript.
 
-- 📫 How to reach me: 
+- 📫 How to reach me: Insta DM is opened!
 
-- ⚡ Fun fact: 
+- ⚡ Fun fact: I am a pro golfer.
 
